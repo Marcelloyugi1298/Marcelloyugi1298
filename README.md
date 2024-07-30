@@ -12,4 +12,5 @@ Meu nome é Marceloyugi
 
 @111594549xsp@al.educacao.sp.gov.br
 
-![descrição do GIF](link GIF do Tenor)
+![](![image](https://github.com/user-attachments/assets/3f3310e5-f86d-437b-98e2-ab41cf1c637f)
+
